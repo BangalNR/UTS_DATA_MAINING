@@ -1,0 +1,2 @@
+# UTS_DATA_MAINING
+Awaludin Harbelubun - 202055202073
